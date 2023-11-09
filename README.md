@@ -7,7 +7,7 @@ I am Rishith P
 second year **PES UNIVERSITYY**
 
 # MY INTRESTS ARE
-~~_**STATISTICS AND DATA SCIENCD**_~~
+~~_**STATISTICS AND DATA SCIENCE**_~~
 
 --AI--
 
